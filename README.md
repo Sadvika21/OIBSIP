@@ -1,2 +1,2 @@
 # OIBSIP
-OASIS INFOBYTE is a community of diverse people coming together with similar objectives and ultimate goals. OASIS INFOBYTE is all about creating opportunities for leadership development, learning, student engagement, and fostering shared interests. 
+OASIS INFOBYTE is a community of diverse people coming together with similar objectives and ultimate goals. OASIS INFOBYTE is all about creating opportunities for leadership development, learning, student engagement, and fostering shared interests. OASIS Infobyte is an internship process where we can work on the tasks on which domain we choose.
